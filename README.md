@@ -32,4 +32,4 @@ Tokyo-Hot归档页：无码合集推荐，分类明确
 FC2中文站：支持搜索+按演员浏览
 避免随意点击不明广告，防止跳转诈骗页
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/mjq1221/42545 ）</span>
